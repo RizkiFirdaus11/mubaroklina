@@ -1,0 +1,1 @@
+ini tahap pertama 
